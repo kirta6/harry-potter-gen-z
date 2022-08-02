@@ -17,11 +17,11 @@ At half past eight, the chonklord that is Mr. Dursley picked up his briefcase, p
 
 It was on that one edge of the street that you feel like you could accidentally hit the elbow of your car on that he noticed something sus --a cat popping off and reading a map. For a sec, Mr. Dursley didn't realize what he'd seen--then he jerked his head around to look again. There was a chonking tabby cat standing on the corner of Privet Drive, but there wasn't a map in sight. What could he have been thinking of? He must have accidentally picked up one of Mrs. Dursley's edibles that morning. Mr. Dursley blinked and stared at the chonking cat. It stared back. As Mr. Dursley drove around the corner and up the road, he watched the chonkers in his mirror. It was now reading the sign that said Privet Drive--no, _looking_ at the sign; cats couldn't read maps or signs. Periodt. Mr. Dursley gave himself a little shake and put the chonkers out of his thinking-organ. As he drove toward the town he had no thonks, head empty, except for some drills he had to sell. _Let's get this L O A F_, he thought.
 
-But on the edge of town, drills were yeeted out of his mind by something else. As he sat in the morning traffic jam starterpack, he couldn’t help noticing that there seemed to be a lot of not-very-shady-at-all people about. People in cloaks. No cap. Mr. Dursley couldn’t bear people who dressed in cheugy clothes — the getups you saw on young people! He supposed this was some stupid new fashion. He drummed his fingers on the steering wheel and his eyes fell on a huddle of these weirdos standing quite close by. They were whispering excitedly together. Mr. Dursley was enraged to see that a couple of them weren’t young at all; why, that man had to be a boomer, and wearing an emerald-green cloak! The audacity of him! But then it struck Mr. Dursley that this was probably some silly stunt (a tiktok probs) — these people were obviously collecting for something… yes, that would be it. The traffic moved on and a few minutes later, Mr. Dursley arrived in the Grunnings parking lot, his mind back on drills. Mr. Dursley always sat with his back to the window in his office on the ninth floor. If he hadn’t, he might have found it harder to concentrate on drills that morning. He didn’t see the owls popping off in broad daylight, though people down in the street did; they pointed and gazed deceased as owl after owl sped overhead. Most of them had never seen an owl even at nighttime. Mr. Dursley, however, had a perfectly normal, owl-free morning. He had no chill and yelled at five different people. He made several important telephone calls and shouted a bit more. He was in a very good mood until lunchtime, when he thought he’d stretch his legs and walk across the road to buy himself a bun from the bakery. He’d forgotten all about the people in cloaks until he passed a group of them next to the Starbucks. He took a beeg look at them with unhappy as he passed. He didn’t know why, but they seemed kinda sus. This bunch were whispering excitedly, too, and he couldn’t see a single GoFundMe donation tin. It was on his way back past them, clutching a large doughnut in a bag, that he caught a few words of what they were saying. "The Potters, that’s right, that’s what I heard —"
+But on the edge of town, drills were yeeted out of his mind by something else. As he sat in the morning traffic jam starterpack, he couldn’t help noticing that there seemed to be a lot of not-very-shady-at-all people about. People in cloaks. No cap. Mr. Dursley couldn’t bear people who dressed in cheugy clothes — the getups you saw on young people! He supposed this was some stupid new fashion. He drummed his fingers on the steering wheel and his eyes fell on a huddle of these weirdos standing quite close by. They were whispering excitedly together. Mr. Dursley was enraged to see that a couple of them weren’t young at all; why, that man had to be a boomer, and wearing an emerald-green cloak! The audacity of him! But then it struck Mr. Dursley that this was probably some silly stunt (a tiktok probs) — these people were obviously collecting for something… yes, that would be it. The traffic moved on and a few minutes later, Mr. Dursley arrived in the Grunnings parking lot, his mind back on drills. Mr. Dursley always sat with his back to the window in his office on the ninth floor. If he hadn’t, he might have found it harder to concentrate on drills that morning. He didn’t see the owls popping off in broad daylight, though people down in the street did; they pointed and gazed deceased as owl after owl sped overhead. Most of them had never seen an owl even at nighttime. Mr. Dursley, however, had a perfectly normal, owl-free morning. He had no chill and yelled at five different people. He made several important telephone calls and shouted a bit more. He was in a very good mood until lunchtime, when he thought he’d touch grass and walk across the road to buy himself a bun from the bakery. He’d forgotten all about the people in cloaks until he passed a group of them next to the Starbucks. He took a beeg look at them with unhappy as he passed. He didn’t know why, but they seemed kinda sus. This bunch were whispering excitedly, too, and he couldn’t see a single GoFundMe donation tin. It was on his way back past them, clutching a large doughnut in a bag, that he caught a few words of what they were saying. "The Potters, that’s right, that’s what I heard —"
 
 " — bet, their boi, Harry —"
 
-Mr Dursley felt like he'd been ratioed irl. He looked back at the whisperers and wondered if he should @ them, but thought better of it. Even a girlboss has his weak moments... and anyway, there were plenty of people called Potter with moots called Harry. There was no point in worrying his discord kitten- her sister was on both their DNI lists.
+Mr Dursley felt like he'd been L bozo ratioed irl. He looked back at the whisperers and wondered if he should @ them, but thought better of it. Even a girlboss has his weak moments... and anyway, there were plenty of people called Potter with moots called Harry. There was no point in worrying his discord kitten- her sister was on both their DNI lists.
 
 During that day, emo thoughts kept dabbing across Mr Dursley's mind. He later left the building and nearly sister slammed into someone just outside his door.
 
@@ -49,11 +49,11 @@ As he had expected, Mrs. Dursley looked like she ate a lemon. After all, they gh
 
 "Cringey crap on the news," Mr. Dursley mumbled. "Owls... shooting stars... and there were a lot of edgelords in town today..."
 
-"And?" snapped Mrs. Dursley.
+"And?" snapped Mrs. Dursley. "Go cry about it."
 
 "Well, I just thought... maybe... it was something to do with ... you know... _her crew_."
 
-Mrs. Dursley sipped her tea through pursed lips. Mr. Dursley wondered whether he dared tell her that he’d heard the name "Potter." He decided he didn’t dare. Instead he said, as casually as he could, "Their crotch goblin – he’d be about Dudley’s age now, wouldn’t he?"
+Mrs. Dursley sipped her tea through pursed lips. Mr. Dursley wondered whether he dared tell her that he’d heard the name "Potter." He decided he didn’t wanna get cancelled. Instead he said, as chill as he could, "Their crotch goblin – he’d be about Dudley’s age now, wouldn’t he?"
 
 "Bet," huffed Mrs. Dursley.
 
@@ -61,7 +61,7 @@ Mrs. Dursley sipped her tea through pursed lips. Mr. Dursley wondered whether he
 
 "Harry. Nasty, cringe name, if you ask me."
 
-"Oh, yeah," Mr. Dursley’s feels felt punched. "Legit."
+"Oh, yeah," Mr. Dursley’s feels felt punched. "Don't pass the vibe check fr."
 
 He decided to stfu as they finna upstairs to catch some z’s. While Mrs. Dursley took off her face, Mr. Dursley lurked in the bedroom window overlooking the front garden. The floof was still there. It was staring down Privet Drive as though it were waiting for something.
 
@@ -109,7 +109,7 @@ She threw a sharp, sideways glance at Dumbledore here, as though hoping he was g
 
 "Nope," Prof McG initiated ice queen mode. "Even if You-Know-Who has stepped off-"
 
-"Girl, names are a thing. That trash is called Voldemort." Prof McG flinched but homeboi was unsticking lemon drops and gave no fucks. "Chillax, it’s just a name."
+"Girly, names are a thing. That trash is called Voldemort." Prof McG flinched but homeboi was unsticking lemon drops and gave no fucks. "Chillax, it’s just a name."
 
 "Bet," Prof McG was exasperated but eyeing Dumbldore like a snacc. "But you’re the only one who could make Voldemort salty."
 
@@ -137,9 +137,9 @@ Dumbledore noddled glumly.
 
 "Legit?" faltered Professor McGonagall. "After all he’s done, he failed to unalive a babin and shm how did Harry survive?"
 
-"We can only guess," said Dumbledore. "We may never know."
+"We can only guess," said Dumbledore. "But tbh idk bro."
 
-Professor McGonagall pulled out a tissue and dabbed at her eyes beneath her spectacles. Dumbledore gave a great sniff as he took a golden watch from his pocket and examined it. It was a very odd watch. It had twelve hands but no numbers; instead, little planets were moving around the edge. It must have made sense to Dumbledore, though, because he put it back in his pocket and said, "Hagrid’s late. I suppose he's the one who told you I’d be here, btw?"
+Professor McGonagall pulled out a tissue and dabbed at her eyes beneath her spectacles. Dumbledore gave a great sniff as he took out some ice aka a golden watch from his pocket and examined it. It was a very odd watch. It had twelve hands but no numbers; instead, little planets were moving around the edge. It must have made sense to Dumbledore, though, because he put it back in his pocket and said, "Hagrid’s late. I suppose he's the one who told you I’d be here, btw?"
 
 "Bet," said Prof McG. "And I don’t suppose you’re going to tell me why you’re here of all places?"
 
